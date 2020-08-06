@@ -7,7 +7,6 @@
 ](https://www.masterclass.com/classes/timbaland-teaches-producing-and-beatmaking
 )
 * [Samuel L. Jackson Teaches Acting](https://www.masterclass.com/classes/samuel-l-jackson-teaches-acting)
-)
 * [Spike Lee Teaches Independent Filmmaking](https://www.masterclass.com/classes/spike-lee-teaches-filmmaking)
 * [Shonda Rhimes Teaches Writing for Television](https://www.masterclass.com/classes/shonda-rhimes-teaches-writing-for-television)
 
