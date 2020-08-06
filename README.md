@@ -15,5 +15,4 @@
 
 
 
-<script src='app.js'>{newline}</script>
 
